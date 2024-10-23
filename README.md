@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Web Development Project/<br>🌱 I have completed my BTech in Electronics and Telecommunication Engineering<br>👯 I’m looking to collaborate on Web Development<br>🤔 I’m looking for help with some bugs solving and helping<br>💬 Ask me about how did I did such easy project<br>📫 How to reach me: LinkedIN | Twitter | Instagram(Naah don't use that)<br>😄 Pronouns: HE/HIM<br>⚡ Fun fact: I usually spend all day writing this Read.me
+🔭 I’m currently working on Web Development Project<br>🌱 I have completed my BTech in Electronics and Telecommunication Engineering<br>👯 I’m looking to collaborate on Web Development<br>🤔 I’m looking for help with some bugs solving and helping<br>💬 Ask me about how did I did such easy project<br>📫 How to reach me: LinkedIN | Twitter | Instagram(Naah don't use that)<br>😄 Pronouns: HE/HIM<br>⚡ Fun fact: I usually spend all day writing this Read.me
 
 
 ## 🌐 Socials:
